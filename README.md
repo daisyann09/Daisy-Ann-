@@ -1,0 +1,6 @@
+- 👋🏿Hi! My name is Daisy-Ann Norman 🙋🏿‍♀️
+- I am interested in learning computer software and learning to code 👩🏿💻⌨️
+-I also enjoy singing, watching tv shows and cooking in my free time 🎤📺🍳
+- I want to be yoga certified in the future 🧘🏿‍♀️
+- I am currently learning to code 👩🏿‍💻
+- 📧you can reach me at daisy-ann.norman@stonybrook.edu or send letters too idk (seems kinda cool) lol jk 📫
